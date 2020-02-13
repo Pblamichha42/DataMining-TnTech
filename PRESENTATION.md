@@ -18,7 +18,7 @@
 | Evans et al.  | Dulce Kaiser | Justin Murphy | Jevin Evans | Shazibul Islam Shamim |
 | Johnson et al.  | Marti  | Johnson  | Lee  | Thompson  |
 | Ayub et al.  | Ahsan  | Nathan  | Steve  | All/group presentation?  |
-| Karagoz et al.  |   |   |   |   |
+| Karagoz et al.  |Prabin   | Ibrahim  |  TBA |  Emre |
 | Mithu et al.  | Mithu  |   |   |   |
 
 
